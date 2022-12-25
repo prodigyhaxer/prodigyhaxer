@@ -1,3 +1,1 @@
-
-[Prodigy stuff.zip](https://github.com/prodigyhaxer/prodigyhaxer/files/10299685/Prodigy.stuff.zip)
-Download this ZIP file to get scripts to use and troll friends 100% safe
+Hello the creator of thes scripts are not responsible for any bans BUT IT WONT MOSTLIKELY HAPPEN I HAVENT GOT BAN YET I WILL UPDATE IF IT STARTS TO MALFUNCTION
