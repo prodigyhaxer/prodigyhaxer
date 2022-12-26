@@ -1,1 +1,1 @@
-Hello the creator of thes scripts are not responsible for any bans BUT IT WONT MOSTLIKELY HAPPEN I HAVENT GOT BAN YET I WILL UPDATE IF IT STARTS TO MALFUNCTION
+Hi guys would you like hack for prodigy if you said yes to that question than download this file if youy want but one thing you have to download A app but dont worry it is perfect safe i will put the link in WinRar Then you click Extract Here then boom there you go.
